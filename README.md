@@ -10,5 +10,5 @@
 # How to reach me ?📫 
 
 - Instagram : Atlasstronomic_
-- Discord : Atlasstronomic#7931
+- Discord : atlasstronomic
 
